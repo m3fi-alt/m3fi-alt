@@ -1,4 +1,9 @@
-## Hi there 👋
+## .hiii  , my pronouns  !! 
+𑁍  .  Ƭ𝚑ê𝔂/𝚑𝒆 ◜◡◝
+
+•⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯•
+
+ ꜛ . i love drem  ..  хd
 
 <!--
 **m3fi-alt/m3fi-alt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -13,4 +18,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+--> <div id="header" align="center">
+  <img src=https://media1.tenor.com/m/yhUllP1m05kAAAAC/dsmp-dream.gif) width="100"/>
+</div>
+
